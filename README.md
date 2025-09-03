@@ -1,2 +1,2 @@
 # synl.io
-ACAR Synl Kaynak Kodları
+ACAR Synl Kaynak Kodları yardım için bana yazabilirsiniz: raynesreal
